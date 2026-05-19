@@ -1,4 +1,4 @@
-# 
+# 自定义 Adobe Premiere Pro PC版 插件 是最佳 Adobe Premiere Pro PC版 插件，集成 录制 和 效果库。安全、可靠、优化，性能最大化。
 
 
 
